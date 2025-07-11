@@ -71,6 +71,7 @@ If you're hiring, collaborating, or just curious — feel free to reach out or e
 
 ## Contact
  
-- **Email:** [makpovesojnr@gmail.com]  
+- **Email:** [makpovesojnr@gmail.com]
+- **Linkedin:** www.linkedin.com/in/maryrose-akpoveso-46588234a
 
 Thanks for stopping by! 🌻
